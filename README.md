@@ -78,7 +78,7 @@ Jika kamu tetap ingin upgrade, berikut tipsnya:
 2. Bandingkan harga RAM terbaru sebelum membeli  
 3. Manfaatkan promo atau diskon marketplace  
 
-👉 Jika kamu ingin cek penawaran, kamu bisa lihat **[pembelian RAM PC murah](https://sfl.gl/kKgPO)**.
+👉 Jika kamu ingin cek penawaran, kamu bisa lihat pembelian RAM PC murah (https://sfl.gl/kKgPO).
 
 ---
 
